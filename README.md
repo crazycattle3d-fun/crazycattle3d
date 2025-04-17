@@ -1,7 +1,7 @@
 # Crazy Cattle 3D
 
 <p align="center">
-  <img src="public/assets/images/games/crazy-cattle-3d.webp" alt="Crazy Cattle 3D Logo" width="400"/>
+  <img src="https://www.crazycattle3d.fun/assets/images/games/crazy-cattle-3d.webp" alt="Crazy Cattle 3D Logo" width="400"/>
 </p>
 
 ## The Ultimate Free Explosive Sheep Game - Play Online or Download
