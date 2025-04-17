@@ -6,11 +6,11 @@
 
 ## The Ultimate Free Explosive Sheep Game - Play Online or Download
 
-Crazy Cattle 3D is an adrenaline-pumping battle royale sheep game where you control explosive sheep 3D characters in three distinct global environments for a chaotic survival challenge. Master the physics-based movement system, outsmart your opponents, and be the last sheep standing! Visit [crazycattle3d.com](https://crazycattle3d.fun) to play online now.
+Crazy Cattle 3D is an adrenaline-pumping battle royale sheep game where you control explosive sheep 3D characters in three distinct global environments for a chaotic survival challenge. Master the physics-based movement system, outsmart your opponents, and be the last sheep standing! Visit [crazycattle3d.fun](https://crazycattle3d.fun) to play online now.
 
 ## Game Overview
 
-Crazy Cattle 3D (also known as Crazy Catt by fans) is a unique battle royale sheep game that combines an advanced physics engine with strategic gameplay, creating a hilarious yet thrilling gaming experience. Available as both a free download from [itch.io](https://www.itch.io/crazycattle3d) and as an online unblocked version at [crazycattle3d.com/play](https://crazycattle3d.fun/play), this game is accessible to everyone. As an explosive sheep, your mission is to survive in a shrinking game area while defeating other woolly opponents to become the ultimate winner.
+Crazy Cattle 3D (also known as Crazy Catt by fans) is a unique battle royale sheep game that combines an advanced physics engine with strategic gameplay, creating a hilarious yet thrilling gaming experience. Available as both a free download from [itch.io](https://www.itch.io/crazycattle3d) and as an online unblocked version at [crazycattle3d.fun/play](https://crazycattle3d.fun/play), this game is accessible to everyone. As an explosive sheep, your mission is to survive in a shrinking game area while defeating other woolly opponents to become the ultimate winner.
 
 ## Where To Download
 
@@ -37,7 +37,7 @@ Iceland's volcanic landscape introduces hazardous zones that can trap unwary she
 New Zealand's mountainous terrain offers vertical gameplay with high-risk, high-reward vantage points. Experienced Crazy Catt players will find optimal strategic routes in this complex environment. Secret cave systems offer additional tactical options for those who've mastered how to play Crazy Cattle 3D.
 
 ### Lunar Base (Coming Soon)
-The upcoming Lunar Base map will revolutionize gameplay, introducing low gravity environments, space equipment, and interstellar obstacles. Check [crazycattle3d.com/news](https://crazycattle3d.fun/news) for updates!
+The upcoming Lunar Base map will revolutionize gameplay, introducing low gravity environments, space equipment, and interstellar obstacles. Check [crazycattle3d.fun/news](https://crazycattle3d.fun/news) for updates!
 
 ## Game Controls
 
@@ -87,17 +87,17 @@ Need more advanced tips? Visit our [strategy guide](https://crazycattle3d.fun/st
 - DirectX 11 compatible graphics card
 - Stable internet connection (for online multiplayer)
 
-Check your system compatibility at [crazycattle3d.com/requirements](https://crazycattle3d.fun/requirements).
+Check your system compatibility at [crazycattle3d.fun/requirements](https://crazycattle3d.fun/requirements).
 
 ## Community & Support
 
-Join our community of players at [crazycattle3d.com/community](https://crazycattle3d.fun/community) to share strategies, report bugs, and connect with other players. For technical support, please visit [crazycattle3d.com/support](https://crazycattle3d.fun/support).
+Join our community of players at [crazycattle3d.fun/community](https://crazycattle3d.fun/community) to share strategies, report bugs, and connect with other players. For technical support, please visit [crazycattle3d.fun/support](https://crazycattle3d.fun/support).
 
 ## Future Updates
 According to the development roadmap, Crazy Cattle 3D will welcome more exciting updates, including new maps, customizable sheep 3D characters, seasonal events, and arena mode. The development team is committed to making this free sheep game an evergreen title in indie gaming, continuously optimizing the experience based on community feedback.
 
 ## Download Crazy Cattle 3D Free Today!
-Experience the explosive sheep battle royale that everyone is talking about! Get the official version from [itch.io](https://www.itch.io/crazycattle3d) or play online at [crazycattle3d.com](https://crazycattle3d.fun) for the best and safest gameplay experience.
+Experience the explosive sheep battle royale that everyone is talking about! Get the official version from [itch.io](https://www.itch.io/crazycattle3d) or play online at [crazycattle3d.fun](https://crazycattle3d.fun) for the best and safest gameplay experience.
 
 ---
 
