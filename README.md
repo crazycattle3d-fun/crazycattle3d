@@ -8,9 +8,7 @@ Explore **Crazy Cattle 3D free**, an adrenaline-pumping battle royale **sheep ga
 
 **Crazy Cattle 3D** is a unique combat game that combines an advanced physics engine with strategic gameplay, creating a gaming experience that's both hilarious and thrilling. You'll play as an explosive sheep, surviving in a constantly shrinking game area while defeating other woolly opponents to become the ultimate winner. The game offers both **free download** and **online unblocked** versions, making it accessible to all players.
 
-[![Crazy Cattle 3D Game Trailer - Play Free Sheep Game](https://crazycattle3d.fun/youtube-thumbnail.jpg)](https://www.youtube.com/embed/Kc-6UAG6Gkg?si=fBqVC6QalzOj-HnR)
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Kc-6UAG6Gkg?si=fBqVC6QalzOj-HnR" frameborder="0" allowfullscreen></iframe>
-
+[![Crazy Cattle 3D Game Trailer - Play Free Sheep Game](https://crazycattle3d.fun/assets/images/games/crazy-cattle-3d.webp)](https://www.youtube.com/embed/Kc-6UAG6Gkg?si=fBqVC6QalzOj-HnR)
 
 ## 2. What is Crazy Cattle 3D?
 
